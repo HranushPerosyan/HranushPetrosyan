@@ -1,2 +1,0 @@
-# HranushPetrosyan
-portfoliocvpage
